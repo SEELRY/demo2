@@ -1,1 +1,1 @@
-Creating a new branch is quick.
+eating a new branch is quick & simple.
